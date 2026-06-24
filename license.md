@@ -9,7 +9,7 @@ The **Skin Change Valorant** is the most advanced and popular cosmetic unlocker 
 
 <div align="center">
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
 
 </div>
 
@@ -94,7 +94,7 @@ Before installation, note that:
 6.  **Click "Apply":** Skins are applied instantly.
 7.  **Enjoy:** Enter a match and see your new skins in action.
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
 
 ### Quick Setup (One-Click All Skins)
 
@@ -108,7 +108,7 @@ For fastest results:
     - Premium player card
 4.  Launch Valorant and enjoy.
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
 
 ### Random Skin Mode
 
@@ -120,7 +120,7 @@ For variety in every round:
 4.  Click **"Enable Random Mode."**
 5.  Get a different skin combination every round.
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
 
 ### Create Preset Loadouts
 
@@ -130,7 +130,7 @@ Save your favorite combinations:
 2.  Click **"Save Preset"** and name it (e.g., "Red Theme," "Champions Collection").
 3.  Load presets anytime with one click.
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
 
 ### Update Skin Database
 
@@ -320,4 +320,4 @@ Our client-side philosophy means you can start using premium skins immediatelyâ€
 
 Join over 2.8 million satisfied players who've unlocked every skin in Valorant with Skin Change Valorant.
 
-[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mu5h7zwd)
+[![Download Skin Change Valorant](https://img.shields.io/badge/Download%20Skin%20Change%20Valorant-purple?style=for-the-badge&logo=github)](https://software-nation.com/mu5h7zwd)
